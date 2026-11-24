@@ -1,0 +1,1 @@
+# Gemini_karyawan-my-friend
